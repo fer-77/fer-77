@@ -12,4 +12,4 @@ rp6172749@gmail.com
 
 @regisp_77
 
-![]()https://media1.tenor.com/m/st4Jixzu9mEAAAAC/sasuke.gif
+![](https://media1.tenor.com/m/st4Jixzu9mEAAAAC/sasuke.gif)
